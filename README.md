@@ -1,1 +1,1 @@
-# fulinkangflk.github.io/indext.html
+# fulinkangflk.github.io/index.html
